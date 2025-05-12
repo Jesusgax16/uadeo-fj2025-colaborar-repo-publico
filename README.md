@@ -1,4 +1,4 @@
 # colaboracion en repositorio publico
 
-[@](https://github.com/jesusgaxiola)
+[@](https://github.com/Jesusgax16)
 
